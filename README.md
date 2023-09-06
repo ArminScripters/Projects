@@ -1,2 +1,1 @@
-he
-https://lindseyhost.com
+
